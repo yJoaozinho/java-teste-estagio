@@ -1,1 +1,1 @@
-questoes praticas ara articipar da seletiva de  um estagio.
+questoes praticas para participar da seletiva de  um estagio.
